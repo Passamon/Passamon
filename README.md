@@ -1,4 +1,4 @@
-### I am interest in data science. 👋
+### I am interested in data science. 👋
 
 ![](https://i.ibb.co/ySZkgqM/PASSAMON-BOONCHANACHAI-DA4-U-1.png)
 
